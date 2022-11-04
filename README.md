@@ -1,1 +1,1 @@
-![Ekran Alıntısı](https://user-images.githubusercontent.com/96900698/199912403-d0d7e6fc-58af-4acd-a5ff-c8652469203b.PNG)
+![Ekran Alıntısı](https://user-images.githubusercontent.com/96900698/199913204-164877e9-0f16-468f-a5d0-4969a47df3ae.PNG)
